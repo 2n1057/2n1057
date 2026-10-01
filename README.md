@@ -1,1 +1,1 @@
-<img width="1731" height="909" alt="Antropy (1)" src="https://github.com/user-attachments/assets/e20959c9-b2da-43ec-87a0-839190403328" />
+<img width="1731" height="909" alt="moniewd" src="https://github.com/user-attachments/assets/5eec91c3-b579-46f8-b710-a94ab8afb419" />

@@ -1,1 +1,1 @@
-<img width="1731" height="909" alt="Mohi_so_cantos_arredondados (1)" src="https://github.com/user-attachments/assets/fb821418-c529-4e48-9eef-e85b31bd1016" />
+<img width="1731" height="909" alt="Mohi so (7)" src="https://github.com/user-attachments/assets/26b98372-a6fc-4297-b4f5-ae5f58cc87d4" />

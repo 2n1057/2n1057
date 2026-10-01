@@ -1,1 +1,1 @@
-<img width="1731" height="909" alt="Mohi_so_transparente" src="https://github.com/user-attachments/assets/d811a5e8-a9b2-4d1c-be70-ff3210e97c1d" />
+<img width="1731" height="909" alt="Mohi so (9)" src="https://github.com/user-attachments/assets/8832ded2-6a04-4d94-accd-85e11af57528" />

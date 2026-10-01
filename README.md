@@ -1,1 +1,1 @@
-<img width="1731" height="909" alt="moniewd" src="https://github.com/user-attachments/assets/5eec91c3-b579-46f8-b710-a94ab8afb419" />
+<img width="1731" height="909" alt="Mohi_so_cantos_transparentes_final" src="https://github.com/user-attachments/assets/edcde7d2-2288-4846-a63f-7baca9dc6c75" />

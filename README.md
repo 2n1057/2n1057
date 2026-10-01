@@ -1,1 +1,1 @@
-<img width="1731" height="909" alt="Mohi so (9)" src="https://github.com/user-attachments/assets/8832ded2-6a04-4d94-accd-85e11af57528" />
+<img width="1731" height="909" alt="ChatGPT Image 1 de out  de 2026, 18_30_36" src="https://github.com/user-attachments/assets/25519512-5532-4115-a388-afc130cbe55f" />
